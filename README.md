@@ -1,15 +1,13 @@
 <div align="center">
 
 
-![Image Alt](https://github.com/CHANCEFORSAKEN/CHANCEFORSAKEN/blob/d583edb1a2da28be528e4f38ac7e3512736ce61d/Untitled817_20251018182809.webp)
+![Image Alt](https://github.com/HarlequinsPuppet/HarlequinsPuppet/blob/d9f31c32f2ad6c84eaf9b9d47082a2f137a4cee3/Untitled8_20260105123117.png)
 
-$\color{#38eb97}{Always~ an~ angel,~ never~ a~ god.~}$
+$\color{#455c18}{Bet~ you'll~ be~ surprised~.~}$
 
 
-<img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=380a03&label=deals">
+<img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=51512b&label=tickets">
 
 whisp2int!ㅤㅤdon't be afraid to approach me, i love making new friends ( ◜‿◝ )♡
 
-[atabook](https://elliotspizza.atabook.org/) [main strawpage](https://harlequinstent.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken) work in progress!
-
-remake laterㅤㅤnew links will be here soon!
+[atabook](https://elliotspizza.atabook.org/) [main strawpage](https://harlequinstent.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken)
